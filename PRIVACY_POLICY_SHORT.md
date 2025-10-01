@@ -1,0 +1,1 @@
+Learn About Your United States does not collect, store, or share any personal data. No information is transmitted off your device. For questions, contact stuartstreetapps@gmail.com.
